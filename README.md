@@ -1,2 +1,2 @@
-# bebebdinajihangemoy
-dina_gemoy
+# kado
+-
